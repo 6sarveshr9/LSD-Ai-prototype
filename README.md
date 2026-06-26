@@ -1,2 +1,2 @@
-# electronicschat69
-its an chatbox you dumbas
+#basic LSD Ai
+we can know about only the ece based questions
